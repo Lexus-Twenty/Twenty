@@ -1,2 +1,2 @@
 ftthbrtnxfhxdgzdbfthhthxdfrrx
-cgm
+cgmtoday
